@@ -2,7 +2,6 @@
 ## Retour sur la visite de SidLee et PixMob
 
 ### Intérêt
-Laquelle des conférences as-tu préféré et pourquoi? (2 à 3 lignes) 
-
+J'ai préféré la conférence de Sid Lee parce que les développeurs étaient dynamiques. Les projets présentés m'ont vraiment impressionner. J'aimerais faire parti de l'équipe car l'esprit de travail semble très agréable.
 ### Travail
-Te verrais-tu travailler dans une des deux entreprises? Si oui, laquelle et pour quelle raison? Si non, pourquoi? (2 à 3 lignes)
+Oui, je me verrais travailler ches SidLee en design graphique car j'aime beaucoup l'esprit de créativité que dégage l'entreprise. L'environnement accueille beaucoup l'innovation et les idées jeunes. 
