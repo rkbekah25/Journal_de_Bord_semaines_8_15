@@ -2,7 +2,7 @@
 ## Retour sur la conférence d'Eidos
 
 ### Intérêt
-Quelle partie de la conférence t'a intéressé le plus? Pourquoi? (2 à 3 lignes) 
+La partie de la conférence est celle de la présentation de la compagnie. J'aime beaucoup leur motif ainsi que les projets qu'ils ont réalisé. 
 
 ### Travail
-Suite à la conférence, aimerais-tu travailler dans le monde du jeu vidéo? Si oui, qu'est-ce qui t'a motivé dans la conférence et si non, pourquoi? (2 à 3 lignes)
+Non, car les jeux vidéos ne sont pas vraiment mon domaine d'intérêt en multimedia. Je suis plus de côté artistique et je penche plus vers ce qui est design.
