@@ -2,10 +2,10 @@
 ## Rétrospective de la présentation 2
 
 ### Points forts
-Nommer deux points forts de votre présentation. 
+Ma presentation visuelle était structurée. J'ai bien élaborer les étapes. 
 
 ### Points à améliorer
-Nommer deux points à améliorer de votre présentation et expliquer comment vous allez les travailler pour les prochaines présentations. 
+Je dois améliorer mon audio pour la prochaine fois et faire en sorte que mon débit de voix est élevé. Je vais aussi m'assurer d'utiliser les bons formats demandés.
 
 ### Présentation préférée
-Quelle présentation avez-vous préféré et pourquoi? 
+Ma présentation préféré est celle d'Adrien sur la transformation d'images matricielles en images vectorielles sur Photoshop car la présentation était fluide et le sujet est original. 
